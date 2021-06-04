@@ -1,1 +1,1 @@
-# namudarbas12-2
+# namudarbas-12-2
